@@ -1,4 +1,4 @@
-  # Pocket Professional Terms of Use
+  # Pocket Professional Terms of Service
 
 Please read these terms and conditions ("terms and conditions", "terms") carefully before using Pocket professional mobile application ("app", "service") operated by Zachary Johnson ("us", 'we", "our").
 
